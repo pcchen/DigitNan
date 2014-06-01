@@ -33,3 +33,59 @@ Ah-tôe-chháu 33
 Ajizumu 156
 A-lí-sim 193
 Am-koe 392
+Amora' 247
+Ām-sê-tāu 239
+Anaru'tto 338
+âng-bah-tō͘ 147, 148
+[âng-bah-tō͘]
+âng-bé-á-chháu 262
+âng-bé-ia̍h-hoe 114
+[âng-bé-ia̍h-hoe]
+âng-bīn-hoan 411
+âng-bīn-mn̂g-chiong-kun 350
+[âng-bīn-mn̂g-chiong-kun]
+âng-chhâ 254, 294
+âng-chhài 412
+âng-chhài-thâu 316
+âng-chhân-o͘ 173
+âng-chhân-o͘-chháu 173
+âng-chhêng-peh 50
+âng-chhì-chhang 250
+âng-chí-á 389
+âng-chí-so͘ 358
+âng-cho 281
+âng-chu 258
+âng-chu-á-thâu 258
+[âng-chu-á-thâu]
+âng-chu-bo̍k 223
+âng-hī-á-bi̍t 362
+[âng-hī-á-bi̍t ]
+âng-hī-á-chhù 362
+[âng-hī-á-chhù]
+âng-hōng-chhài 412
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
