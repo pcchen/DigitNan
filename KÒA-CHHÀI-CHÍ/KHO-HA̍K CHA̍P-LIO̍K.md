@@ -1,7 +1,7 @@
 # KHO-HA̍K CHA̍P-LIO̍K
 # KHONG-KHÌ
 
-Khoà-kìⁿ chhó-bo̍k ê ki-hio̍k teh iô-lâi iô-khì, lán chiū chai ū hong teh chhe. Chēng-chēng bô hong ê sî, lán nā ēng chhiú á-sī sìⁿ tī khong-tiong koáⁿ-kín lâi ia̍t, iā thang chai ū sím-mi̍h chhiok tio̍h lán ê phê-hu. Koh chit hāng chiū-sī lâng ēng phīⁿ-khang teh ho͘-chhut khip-ji̍p khong-tiong ê mi̍h bô chi̍t-biáu-kan ū hioh-khùn. Taⁿ khong-tiong hit hāng mi̍h, lán kā i hō choè khong-khì. Che sī ta̍k lâng só͘ bat ê siông-sek.
+~~Khoà-kìⁿ~~(Khòaⁿ-kìⁿ) chhó-bo̍k ê ki-hio̍k teh iô-lâi iô-khì, lán chiū chai ū hong teh chhe. Chēng-chēng bô hong ê sî, lán nā ēng chhiú á-sī sìⁿ tī khong-tiong koáⁿ-kín lâi ia̍t, iā thang chai ū sím-mi̍h chhiok tio̍h lán ê phê-hu. Koh chit hāng chiū-sī lâng ēng phīⁿ-khang teh ho͘-chhut khip-ji̍p khong-tiong ê mi̍h bô chi̍t-biáu-kan ū hioh-khùn. Taⁿ khong-tiong hit hāng mi̍h, lán kā i hō choè khong-khì. Che sī ta̍k lâng só͘ bat ê siông-sek.
 
 Khong-khì sī pau-uî tī toē-kiû chuí-lio̍k lióng-kài ê piáu-bīn-siōng, bô lūn toh uī chi̍t khang, chi̍t-khiah to sī i só͘ chiàm-léng ê ông-kok. Sui-jiân sī án-ni, i ê chûn-chāi ê hoān-uî m̄-sī bô hān-ê.
 
