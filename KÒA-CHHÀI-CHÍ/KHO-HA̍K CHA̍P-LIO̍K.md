@@ -1,101 +1,43 @@
-# KHO-HA̍K CHA̍P-LIO̍K <br /> KHONG-KHÌ
+# KHO-HA̍K CHA̍P-LIO̍K
 
-~~Khoà-kìⁿ~~ (Khòaⁿ-kìⁿ) chhó-bo̍k ê ki-hio̍k teh iô-lâi iô-khì, lán chiū chai ū hong teh chhe. Chēng-chēng bô hong ê sî, lán nā ēng chhiú á-sī sìⁿ tī khong-tiong koáⁿ-kín lâi ia̍t, iā thang chai ū sím-mi̍h chhiok tio̍h lán ê phê-hu. Koh chit hāng chiū-sī lâng ēng phīⁿ-khang teh ho͘-chhut khip-ji̍p khong-tiong ê mi̍h bô chi̍t-biáu-kan ū hioh-khùn. Taⁿ khong-tiong hit hāng mi̍h, lán kā i hō choè khong-khì. Che sī ta̍k lâng só͘ bat ê siông-sek.
+Lán ji̍t-siông ê seng-o̍ah, só͘ teh keng-giām ê hiān-siōng (chiū-sī mi̍h ê piàn-hòa: chhin-chhiūⁿ hé-thòaⁿ teh to̍h, thiⁿ-khì teh piàn, hong teh chhe, chúi teh lâu, tōng si̍t bu̍t teh seng-tióng ta̍k-hāng) chin chōe sī chū-jiân kho-ha̍k (chiū-sī gián-kiù chū-jiân-kài ê hiān-siōng ê ha̍k-bûn.) só͘ teh gián-kiù ê būn-tôe kap chhâi-liāu. Só͘-í lán ê ngó͘-koan ji̍t-mî só͘ teh keng-giām ê sū--bu̍t, teh piàn-chhian ê gôan-in, tùi kho-ha̍k ê hong-bīn thang thiah-bêng. Iáu-kú chōe-chōe lâng khah siông sī ēng ioh--ê, hán tit siông-sè kā chhâ-khó hit ê gôan-thâu. Siông-siông teh khòaⁿ ê mi̍h, teh thiaⁿ ê sū, á-sī só͘ teh ēng ê mi̍h-kiāⁿ, nā siông-siông kā i khe-khó ta̍k-hāng lóng ū chin bî-biāu ê só͘-chāi tī teh; Só͘-í lán nā ōe nā bat tām-po̍h sio̍k tī kho-ha̍k ê tì-sek, kap i ê chìn-pō͘ hoat-ta̍t ê le̍k-sú, put-chí ū thang chòe lán ji̍t-siông seng-o̍ah ê lī-ek, iā ōe pang-chān lán tùi tī chū-jiân-kài ê hong-bīn siⁿ-khí hèng-bī.
 
-Khong-khì sī pau-uî tī toē-kiû chuí-lio̍k lióng-kài ê piáu-bīn-siōng, bô lūn toh uī chi̍t khang, chi̍t-khiah to sī i só͘ chiàm-léng ê ông-kok. Sui-jiân sī án-ni, i ê chûn-chāi ê hoān-uî m̄-sī bô hān-ê.
+Só͘-í ū ki-hōe ê sî ài tī pún pò kán-kán chhián-bêng chi̍t pòaⁿ hāng, nā ōe chòe chu ūi ê chham-khó chiū chin bān-hēng.
 
-Khong-khì pau-uî tī toē-kiû ê piáu-bīn-siōng chiah ū 20 goā eng-lí (mile) ê hn̄g nā-tiāⁿ. Koh khí-khì sī pa̍t-khoán ê goân-sò͘ pau-uî teh. Lī toē-bīn koân ê só͘-chāi khong-khì chiū ná hi-po̍h; oē iông-ún tit ê lâng ê ho͘-khip boē tú-tio̍h sím-mi̍h toā chó͘-gāi ê só͘-chai, ke̍k-koân put-kò iā sī chiâⁿ cha̍p eng-lí í-lāi nā-tiāⁿ. Nā bat-peh koân-soaⁿ ê lâng chiū chai-iáⁿ peh chiūⁿ jú-koân ê só͘-chāi oē hō͘ ho͘-khip ná khùn-lân.
+Kho-ha̍k ū ēng chin-chōe choan-bûn ê ōe, hō chòe, "Su̍t-gú." Kiám-chhái ū ê hō͘ tú chiah thiaⁿ-kìⁿ ê lâng khah oh liáu-kái; ǹg-bāng bo̍k-kòai, in-ūi ū ê bô tú-hó ê pêng-siông-ōe, só͘-í chiah ko͘-put-chiong ēng.
 
-Lán chai khong-khì sî chin khin ê mi̍h; m̄-kú sui-bóng koh-khah khin ê mi̍h, nā-sī chek choē khí--lâi mā-sī chin-tāng, put-kò in-uī i ê hun-chú kap hun-chú ê tiong-kan saⁿ-lī chin-hn̄g, só͘-í i ê teh2-chek tio̍h tìn chin khoah. Taⁿ khong-khì tuì hiah koân ê só͘-châi teh-teh ê la̍t ū loā-toā? Nā-sī tī hái-bīn muí chi̍t pêng hong chhioh ū siū khong-khì ê ap-le̍k 170 goā kun, chit ê la̍t nā lī hái-bīn ná koân ê só͘-chāi ná kiám chió. Só͘-í nā niû chit ê la̍t, chiū thang chai hit só͘-chāi ū loā koân. Khong-khì chit-khoán ê ap-le̍k hō choè khì-ap. Khì-ap ê la̍t sī ēng khì-ap-kè niû.
+## SIH-NÀ KAP LÛI
 
-Hō͘ khì-ap-kè ê chuí-gûn thiāu, chhèng 76 sian-bí-bu̍t, chiū-sī 25 chhùn koân ê ap-le̍k hō choè chi̍t khì-ap. (chuí-gûn pí chuí khah tāng 136 pē, só͘-í chi̍t khì-ap ê la̍t oē hō͘ chuí chhèng-kàu 34 chhioh koân)
+Jo̍ah-thiⁿ kàu lah! Lán siông-siông khòaⁿ-kìⁿ sih-nà kng iàⁿ-iàⁿ, thiaⁿ-kìⁿ lûi tân khì-khè háu ê siaⁿ. Ū lâng liû-thôan kóng, lûi sī chi̍t chiah chhin-chhiūⁿ koe-bú, kha-jiáu chin lāi ōe jiàu lâng, iā giâ chi̍t ki kim-kong-thûi ōe hám lâng. Chāi-chá Lô-má kap Hi-lia̍p ê peh-sìⁿ ēng lûi piáu-bêng chi̍t khóan ê sîn, giâ chi̍t ki bú-khì chhin-chhiūⁿ chhuiⁿ ê khóan. Iā ū lâng phah-sǹg lûi sī tùi téng-bīn ka-la̍uh lo̍h lâi chi̍t-lia̍p chhin-chhiūⁿ thih-ôan, chńg tùi tōe nih lo̍h-khì. Chóng-sī chiàu bu̍t-lí-ha̍k lâi khòaⁿ, lûi sī kap sih-nà siāng chi̍t hāng mi̍h, chiū-sī khong-tiong ê tiān-khì piàn-hêng--ê. Che phah-sǹg chōe-chōe lâng í-keng chai-iáⁿ. Lûi kap sih-nà sī tiān-khì ê hiān-siōng, che sī 1752 nî Bí-kok lâng Hoat-lân-kek-lín (Franklin) pàng hong-chhe khì si̍t-giām hoat-kiàn--ê. Tiān-khì cháiⁿ-iūⁿ ná ōe piàn chòe lûi kap sih-nà? Tiān-khì hun chòe nn̄g-khóan, chiū-sī iông-tiān kap im-tiān. Tī si̍t-giām-sek lán ōe pī-pān nn̄g-ki tiān-ke̍k (i ê chit kap hé-thòaⁿ siāng, saⁿ tùi hiòng hit nn̄g-thâu chiam-chiam), chi̍t pêng chiap iông-tiān, iáu chi̍t pêng chiap im-tiān. Chhòng hō͘ siang pêng tiān-ke̍k ê iông-tiān kap im-tiān ê hūn-liōng cheng-chha chin-chōe, koh hō͘ nn̄g-ki tiān-ke̍k nā saⁿ kūn-óa ê sî, im-tiān kap iông-tiān chiū cháu chhut-lâi saⁿ-kiat ha̍p, phi̍t-pho̍k háu sòa hoat-chhut tiān-kng; án-ni sī hō chòe hòng-tiān hiān-siōng. Khong-tiong ê tiān-khì piàn chòe lûi (chiū-sī phi̍t-phia̍k háu ê siaⁿ) kap sih-nà (chiū-sī tiān-kng) tú-tú sī kap téng-bīn só͘-kóng ê siāng lí-khì, put-kò i ê kui-bô͘ pí si̍t-giām sek teh si̍t-giām ê ke hui-siông tōa. Chiàu ha̍k-chiá si̍t-tōe ê gián-kiù, khong-tiong ê hûn chōe chió lóng ū tòa tiān-khì tī-teh. Chit hō hûn hō chòe tiān-hûn. Tòa iông-tiān ê tiān-hûn kap tòa im-tiān ê tiān-hûn tú-tú sī chhin-chhiūⁿ nn̄g-ki tiān-ke̍k chiap tī iông-tiān kap im-tiān. Nn̄g-phiáⁿ ê tiān-hûn nā saⁿ kūn-óa, chiū ēng chin kiông ê khip-ín la̍t óa lûi saⁿ kiat-ha̍p. Hit sî chiū-sī pho̍k-hoat-tek ê hòng-tiān hiān-siōng, só͘-í m̄-nā hoat-chhut kng iáⁿ-iáⁿ ê sih-nà, iā sòa hoat-chhut chin hiáng ê siaⁿ, chiū-sī lûi. Chit khóan hiān-siōng lóng bô sím-mi̍h gûi-hiám tī-te̍h. Nā-sī tiān-hûn khah kē lo̍h-lâi, kap tōe-bīn ê tiān-khì hòng-tiān ê sî, chiū ōe sún-hāi chhiū-ba̍k, chhù-the̍h; ū sî ōe sún-hāi cheng-seⁿ á-sī lâng ê sèⁿ-miá. Chit khóan ê hòng-tiān hō chòe lo̍h-lûi. Nā kap lán saⁿ kūn-óa ê só͘ chāi lo̍h lâi ê sî, hō͘ lán put-chí ū thang kiaⁿ-hiâⁿ ê só͘-chāi. Lo̍h lûi khah-siông sī tùi sì-ûi tē-it kôan ê só͘-chāi ín-tiān. Só͘-í lo̍h sai-pak-hō͘ ê sî, khah-hó m̄-thang bih tī tē-it kôan ê tōa chhiū kha, chiū khah bōe gûi-hiám. Hòng-tiān ê sî, tiān-khì hoat-chhut hūi-siông tōa ê la̍t, kap chin kôan ê un-tō͘, chiū-sī jia̍t. Só͘-í nā lo̍h lâi ê sî m̄-nā sún-hāi hū-kūn ê mi̍h, iā sòa sio hō͘ i chhàu-ta. Ū lâng the̍h chi̍t khóan sih-nà sio chhàu-ta ê mi̍h khì choaⁿ tê lim, kóng ōe siám chi̍t hō chai-ē. Ū sî put-hēng lâng bō͘ lûi hám tio̍h, á-sī khì kám-tio̍h tiān-khì, tì-kàu si̍t-lo̍h sìⁿ-miā, chiū kóng sī put-háu, á-sī ū sím-mi̍h pháiⁿ chek-tek. Chiah-ê lóng bê-sìn lah!
 
-Taⁿ oa̍t tò-tńg lâi khoàⁿ khong-khì sī sím-mi̍h? Khong-khì sī bô sek, bô bī, pêng-siōng ê un-tō͘ (í-āu kán-lio̍k kóng siông-un) sī khì-teh2, (Bān-hāng-mi̍h thang hun-choè saⁿ ê chōng-thài:－
-(1) Kò͘-teh2, －chhin-chhiūⁿ chio̍h, thih, chhâ: (2) e̍k-teh2, - chhin-chhiūⁿ chuí, chhàu-iû------; (3) Khì-teh2,- chhin-chhiūⁿ chuí-cheng-khì, oá-su, khong-khì------) Khong-khì chi̍t-pa̍h-hun ê lāi-tiong, iok gō͘-hūn-chi̍t sī sng-sò͘, oá gō͘-hūn-sì sī chit-sò͘, kî-û ū tām-po̍h ê goân-sò͘. (argon), thoàⁿ-sng oá-su kap chuí-cheng-khì.
+Ū sî gín-ná ka-la̍uh pn̄g-lia̍p, sī-tōa lâng ū ê kā i háng-hoah kóng ōe hō͘ lûi hám sí. Tùi án-ni hō͘ gín-ná khǹg chi̍t khóan ê kiaⁿ sim, nā khòaⁿ-kìⁿ sih-nà chiū chin kiaⁿ. Chóng-sī tùi téng-bīn só͘ kóng ê lán thang chai, che sī chū-jiân-kài ê hiān-siōng, tû-khì lo̍h lûi í-gōa lóng bô sím-mi̍h thang kiaⁿ. Só͘-í lán tio̍h kā sòe-kiáⁿ kóng-bêng, hō͘ in kap chit hō ke̍k chòng-tāi, ke̍k bí-lē ê hiān-siōng khah saⁿ-chhin, m̄-thang hō͘ in khǹg kiaⁿ-hiâⁿ ê sim.
 
-Khah-oá toē-kiû piáu-bīn-siōng ê khong-khì, ū chiah ê bu̍t-chit ēng tú-hó ê hun-liōng lâi saⁿ khun-ha̍h, kàu tú-tú ha̍h bān-hāng mi̍h ê lō͘-ēng.
+## KNG Ê KÍN
 
-Nā kan-ta sng-sò͘ chit-hāng goân-sò͘ tī-teh ê sî, sui-bóng sī siông-un iā sī chin khoài kap pa̍t hāng mi̍h saⁿ hoà-ha̍p. Che hō choè sng-hoà, sī sng-sò͘ ê te̍k-sèng. Phí-jū tú-á pûn-sit ê hé-chhat-ki nā kā i hē tī sng-sò͘ ê lāi-bīn liām-piⁿ chiū koh to̍h.
+Téng-bīn ū kóng sih-nà kap lûi pîⁿ-pîⁿ sī tiān-khì piàn-hêng ê, cháiⁿ-iūⁿ sih-nà ê kng kap lûi ê siaⁿ bōe siâng sî ji̍p lán ê kám- kak? Che sī kng kap siaⁿ teh chìn-hêng, ū kín bān ê cheng-chha. Kó͘-tāi ê ha̍k-chiá phah-sǹg, kng teh chìn-hêng ê kín sī bô hān. Chóng-sī 1675 nî Hô-lân ê thian-bûn ha̍k-chiá Lê-má (Roemer) ū hoat-kiàn, kng teh chìn-hêng ê kín sī iú-hān. Āu-lâi kúi-nā ê gâu ê ha̍k-chiá chin siông-sè gián-kiù, chiū khak-si̍t chai, kng ê kín, 1 biáu kan 300,000 ki-bí-tu̍t (kilometre), iok ū 76,000 gōa lí. Nā-sī siaⁿ ê kín, chiàu bu̍t-lí ha̍k-chiá só͘ gián-kiù, tī khong-tiong chi̍t biáu kan chiah ū 1,100 gōa chhioh nā-tiāⁿ. Án-ni pí-kàu khí-lâi, kng pí siaⁿ khah kín 882,000 gōa pē. Só͘-í sui-bóng lo̍h-lûi ê sî, sih-nà kap lûi nā pîⁿ-pîⁿ ji̍p lán ê kám-kak, lán iā sī m̄ bián kiaⁿ. Tùi khòaⁿ-kìⁿ sih-nà kàu thiaⁿ-kìⁿ lûi ê siaⁿ hit tiong-kan sî-kan ê tn̂g-té, lán thang chai teh hòng-tiān, á-sī lo̍h-lûi ê só͘-chāi sī lī lán hn̄g á-sī kūn. Chiàu ha̍k-chiá só͘ gián-kiù, ú-tiū lāi bô chi̍t hāng mi̍h ê kín ōe pôaⁿ-kè kng ê kín. Siāng kín iā sī kap kng ê kín pîⁿ nā-tiāⁿ. Tiān-liû ê kín kap kng pîⁿ-á kín. Siat-sú lán nā ōe ēng tâng-sòaⁿ lâi tîⁿ-tōe-kiû ê chiu-ûi, tiān-liû chi̍t biáu kan ōe se̍h chhit lìn pòaⁿ. (Tōe-kiû ê chiu-ûi óa 10,200 lí). Lán mî-ji̍t teh khòaⁿ ê kng, ēng chit khóan hui-siông ê kín teh chìn-hêng, kiám m̄-sī thang hián-bêng Chō-bu̍t-chú ê tōa kôan-lêng mah?
 
-Chit-sò͘ tú-tú kap sng-sò͘ tò-hoán, i ê sèng chin tūn, siông-un ê sî chin oh kap pa̍t-hāng goân-sò͘ saⁿ hoà-ha̍p. In-uī khong-khì sī chit nn̄g-hāng sèng-chit saⁿ tuì-hoán iàu-kín ê goân-sò͘ lâi saⁿ-chham--ê, só͘-í tī siông-un ê sî oē tú-hó kiong-kip chèng-hāng-mi̍h ê khiàm-kheh. Taⁿ khong-khì thang choè sím-mi̍h lō͘-ēng?Kán-tan lâi kóng kuí-nā hāng:
+Kng sī jîn-lūi kap kî-û ê seng-bu̍t só͘ tē-it khiàm-ēng ê, ê chi̍t hāng. Tōe-kiû siōng nā bô ji̍t-thâu ê kng, chiū lóng pìⁿ-chòe o͘-àm. Tùi án-ni lán ê jio̍k-thé iā bōe-tit thang o̍ah. Chhin-chhiūⁿ án-ni lán ê sim-lêng iā tio̍h óa-khò sîn-lêng kài ê kng chiah ōe o̍ah.
 
-(I) Hoà-ha̍k-tek ê piàn-hoà kap lō-ēng. Tē it iàu-kín lán lóng chai, chiū-sī khong-khì oē pang-chān jîn-luī, ke-khîm cháu-siū í-kip chhó-bo̍k thang oa̍h tī toē-bīn. Lâng suh khong-khì tī hì-nih, sng-sò͘ chiū khip-siu ta̍k-téng-hō ê lâ-sâm, soé chheng lán ê huih, āu-lâi pìⁿ choè thoàⁿ-sng oá-su á-sī lâ-sâm ê khong-khì, chiah chhoán chhut-lâi. Só͘-í lâng só͘ tiàm ê chhù-lāi m̄-thang koaiⁿ siuⁿ ba̍t, tio̍h hō͘ khong-khì khah ū liû-thong, chiah ū ha̍p tī oē-seng.
+Iâ-so͘ pún-sin kóng, "Góa chiū-sī kng lâi ji̍p sè-kan" iā tùi sìn I ê ha̍k-seng kóng, "Lín sī sè-kan ê kng" Chit-khóan chong-kàu-tek ê phì-jū, nā chhim-chhim kā i siūⁿ, m̄-nā sī bûn-ha̍k-tek, iā sī kho-ha̍k-tek--ê. Ji̍t-thâu ê kng hō͘ lán chûn-sio̍k jio̍k-thé ê o̍ah-miā, chin-lí ê kng í-keng chiò tī Tâi-ôan gō͘-cha̍p gōa nî kú lah! Ǹg-bāng tùi chit-tia̍p Kòa-Chhài chí, hō͘ chin-lí ê kng it-hoat piàn-chiò tī chôan-tâi.
 
-Si̍t-bu̍t tuì i ê hio̍h-ē soè ê khang khip-ji̍p khong-khì, āu-lâi chiah tehh8 hit lâi-tiong ê chit-sò͘ kap thoàⁿ-sng oá-su tiong ê thoàⁿ-sò͘ choè i ê êng-ióng-hun, iā thò͘ chhut só͘ chhun ê sng-sò͘. Só͘-í tī hái-piⁿ chhiū-nâ ê só͘-chāi, hia ê khong-khì khah chheng, khah oē pang-chān lâng ê kiān-khong.
+Tân Lêng-thong
 
-Tī khong-tiong nā bô khong-khì chiū lán só͘ tiám ē hé lā boē to̍h. In-uī hé teh to̍h sī khong-khì tiong ê sng-sò͘ teh pang-chān i. Chiū-sī sng-sò͘ kap thoàⁿ-sò͘ saⁿ kiat-ha̍p pìⁿ-choè thoàⁿ-sng oá-su, hō͘ lán thang khoàⁿ-kìⁿ hé-chi̍h, hé-iām âng-âng. Lán teh ia̍t hang-lô͘ chiū-sī ài hō͘ hé-thoàⁿ lāi thoàⁿ-sò͘ thang oân-choân kap sng-sò͘ saⁿ kiat-ha̍p lâi hoat-seⁿ khah choē ê jia̍t. Hé-thoàⁿ teh to̍h ê sî lán siông-siông ū khoàⁿ-kìⁿ tām-po̍h-á chhiⁿ-sek ê hé-chi̍h. Che sī ke̍k-to̍k ê mi̍h, hō choè it-sng-hoè thoàⁿ-sò͘, nā khip-ji̍p suiⁿ-choē oē siong-hāi seng-khu, ū sî oē tì-kàu sí. Só͘-í nā khí hé-lô͘ ê sî tio̍h hō͘ hé-thoàⁿ khah gâu to̍h chiū khah boē hoat-seⁿ chit-khoán to̍k-sò͘.
+# 科學雜略
 
-Koâⁿ-thiⁿ iám hé-lang tio̍h ēng pû chin âng ê thoàⁿ khah hó. Thih-khì oē seⁿ-sian iā-sī in-uī khong-khì tiong ê sng-sò͘ kap thih ûn-ûn-á saⁿ kiat-ha̍p ê só͘-tì. Chiū-sī thih hō͘ sng-sò͘ kā i sng-hoà--khì. In-uī ài ti-hông chit-hō sng-sò͘ ê chok-iōng lán chiah ēng pa̍t-hāng ni̍h lâi kā chhat.
+咱日常ê生活，所teh經驗ê現象（就是物ê變化：親像火炭teh焯、天氣teh 變、風teh吹、水the流、動植物teh生長逐項）真濟是自然科學（就是研究自然界ê現象ê學問。）所teh研究ê問題kap材料。所以咱ê五官日暝所teh經驗ê事物、teh變遷ê原因，對科學ê方面thang拆明。猶久濟濟人khah上是用臆--ê，罕得詳細kā查考彼个源頭。常常teh看ê物、teh聽ê事，á是所teh用ê物件，若常常kā伊稽考逐項攏有真微妙ê所在佇teh；所以咱若會若捌淡薄屬佇科學ê智識，kap伊ê進步發達ê歷史，不止有thang做咱日常生活ê利益，也會幫贊咱對佇自然界ê方面生起興味。
 
-Chi̍t-hāng hō͘ lán thang chù-ì--ê, chiū-sī chêng-nî Au-chiu tāi-chiàn ê sî Tek-kok ê ha̍k-chiá Hā-bah (Harvard) ū hoat-kiàn tuì khong-tiong khip-siu chit-sò͘ ê hong-hoat. Chit-hāng sī kho-ha̍k-siōng ê toā hoat-bêng; in-uī chin chá chiū ū lâng khó͘-sim teh gián-kiù chit-hāng; chóng-sī bô sêng-kong. Chè-chō hé-io̍h, puî-liāu í-ki̍p pa̍t-hāng ê mi̍h só͘ khiàm-ēng ê chit-sò͘ tio̍h tuì pa̍t-hāng goân-liāu lâi khêng khí-lâi. Tuì keng-chè-siōng khoàⁿ khí-lâi sī chin siōng-tiōng. Nā-sī khong-khì sī chū-jiân ê pún-goân, m̄-bián ēng chîⁿ lâi boé, iā bián kiaⁿ hiah khoài chiū tehh8 liáu. Só͘-í ēng Hā-bah ê hong-hoat lâi khip-siu khong-tiong ê chit-sò͘, keng-chè-siōng chin ū tn̂g. Au-chiàn-tiong Tek-kok oē tòng hiah-kú, iā-sī in-uī ū chit-hāng ê toā hoat-kiàn thang hō͘ i oá-khò.
+所以有機會ê時ài佇本報簡簡闡明一半項，若會做諸位ê參考就真萬幸。
 
-(II) Bu̍t-lí-tek ê piàn-hoà kap iōng-tô͘. Tē-it iàu-kín khong-khì sī choè thoân-ta̍t siaⁿ-im ê lō͘-ēng. Siat sú nā bô khong-khì, sui-bóng hoat-siaⁿ-teh2 ê siaⁿ-im koh-khah toā, in sī boē tit kàu tī lán ê hi-mo̍h. Lán nā ēng chin ióng ê po-lê-cheng lâi tàu tī chit ê teh háu ê tiān-lêng, sui-bóng chiap-chhuì kô͘ hō͘ i chin-ba̍t, lán iáu-kú oē thiaⁿ-kìⁿ i ê siaⁿ. Nā ēng thiu-hong ê khì-khū, kā i thiu-chhut hit lāi-bīn ê khong-khì, chiū ná soè-siaⁿ, kàu bé oē lóng bô thiaⁿ-kÌN; in-ui bô khong-khì thang thoân-pò͘ hit ê siaⁿ-im kàu tī goā-bīn.
+科學有用真濟專門ê話，號做，「術語」。Kiám-chhái有ê予拄chiah聽見ê人khah oh了解；ǹg望莫怪，因為有ê無拄好ê平常話，所以chiah姑不衷用。
 
-Khong-khì teh thoân-pò͘ siaⁿ-im sī siū-tio̍h tuì hoat-im-teh2 só͘ hoat-chhut chin-tāng ê sè-le̍k. Khong-khì siū-tio̍h chit-hō sè-le̍k chiū chiâⁿ-choè im-pho (á-sī kóng khong-khì-éng) thoân-ta̍t tī sì-uî. Hoat-im-teh2 só͘ hoat-chhut ê sè-le̍k sī liân-sio̍k-tek--ê, m̄-sī choè chi̍t-pái chi̍t-pái hoat-chhut. M̄-kú khong-khì tiong ū mô͘-chhat kap tí-khòng ê la̍t tī-teh, só͘-í chín-tōng ê sè-le̍k ná soè-bia̍t, khong-khì só͘ siū ê sè-le̍k ná kiám-chió, siaⁿ-im chiū ná soè.
+## 熾爁KAP雷
+　　熱天到lah！咱常常看見熾爁光映映，聽見雷嘽去khè哮ê聲。有人流傳講，雷是一隻親像雞母，跤爪真利會抓人，iá夯一支金光槌會hám人。在早羅馬kap希臘ê百姓用雷表明一款ê神，夯一支武器親像槍ê款。也有人拍算雷是對頂面ka-la̍uh落來一粒親像鐵丸，鑽對地裡落去。總是照物理學來看，雷是kap熾爁siāng一項物，就是空中ê電氣變形--ê。這拍算濟濟人已經知影。雷kap熾爁是電氣ê現象，這是1752年美國人Hoat-lân-kek-lín (Franklin)放風吹去實驗發見--ê。電氣怎樣ná會變做雷kap熾爁？電氣分做兩款，就是陽電kap陰電。佇實驗室咱會備辦兩支電極（伊ê這kap火炭siāng，相對向彼兩頭尖尖），一爿接陽電，iáu一爿接陰電。創好雙爿電極ê陽電kap陰電ê份量增差真濟，koh予兩支電極若相近倚ê時，陰電kap陽電就走出來相結合，phi̍t-pho̍k哮續發出電光；按呢是號做放電現象。空中ê電氣變做雷（就是phi̍t-phia̍k哮ê聲）kap熾爁（就是電光）拄拄是kap頂面所講ê siāng理氣，不過伊ê規模比實驗室teh實驗ê加非常大。照學者實地ê研究，空中ê雲濟少攏有帶電氣佇teh。這號雲號做電雲。帶陽電ê電雲kap帶陰電ê電雲拄拄是親像兩支電極接佇陽電kap陰電。兩phiáⁿ ê電雲若相近倚，就用真強ê吸引力倚雷相結合。彼時就是爆發的ê放電現象，所以毋若發出光影影ê熾爁，也續發出真響ê聲，就是雷。這款現象攏無啥物危險佇te̍h。若是電雲khah低落來，kap地面ê電氣放電ê時，就會損害樹木、厝宅；有時會損害猙牲á是人ê性命。這款ê放電號做落雷。若kap咱相近倚ê所在落來ê時，予咱不止有thang驚惶ê所在。落雷khah常是對四圍第一懸ê所在引電。所以落西北雨ê時，khah好毋thang bih佇第一懸ê大樹跤，就khah袂危險。放電ê時，電氣發出非常大ê力，kap真懸ê溫度，就是熱。所以若落來ê時毋若損害附近ê物，也續燒予伊臭礁。有人提一款熾爁燒臭礁ê物去煎茶啉，講會閃一號災阨。有時不幸人予雷hám著，á是去kám著電氣，致到失落性命，就講是不孝，á是有啥物歹積德。遮个攏迷信lah！
 
-Téng-bīn ū kóng-khí khong-khì ê ap-le̍k ū chiah toā, só͘-í lán nā teh thiu chhut po-lê-kńg lāi ê khong-khì, tio̍h ēng chin ióng ê po-lê-kńg chiah boē piak-phoà. Po-lê kńg lāi bô khong-khì sī hō choè chin-khong. Kūn-tāi bu̍t-lí-ha̍k chin tiōng-iàu ê kun-pún bûn-toê lóng sī tī chin-khong-kńg ê lāi-bīn gián-kiù chhut-lāi- -ê. Khiok bô beh kóng-khí hiah-ê, kan-ta hō͘ lán chai tī khong-khì ê sè-kài ê lāi-bīn, iáu ū chin bî-biāu ê hiān-siōng.
+有時囡仔ka-la̍uh飯料，序大人有ê kā伊哄喝講話予雷hám死。對按呢予囡仔勸一款ê驚心，若看見熾爁就真驚。總是對頂面所講ê咱thang知，這是自然界ê現象，除去落雷以外攏無啥物thang驚。所以咱著kā細囝講明，予in kap這號極壯大、極美麗ê現象khah相親，毋-thang予in囥驚惶ê心。
 
-Khong-khì ê ap-le̍k hiah toā, lán lóng bô kám-kak-tio̍h, sī in-uī lán ê seng-khu lāi m̄-sī chin-khong, ū tú-hó ê khong-khì tī lāi-bīn teh tí-khòng goā-bīn ê ap-le̍k.
+## 光Ê緊
+　　頂面有講熾爁kap雷平平是電氣變形ê，怎樣熾爁ê光kap雷ê聲袂siâng時入咱ê感覺？這是光kap聲teh進行，有緊慢ê增差。古代ê學者拍算，光teh進行ê緊是無限。總是1675年荷蘭ê天文學者Lê-má (Roemer)有發見，光teh進行ê緊是有限。後來幾若ê gâu ê學者真詳細研究，就確實知，光緊，1秒間300,000 ki-bí-tu̍t (kilometre)，約有76,000外里。若是聲ê緊，照物理學者所研究，佇空中一秒間chiah有1,100外尺若定。按呢比較起來，光比聲khah緊882,000外倍。所以雖bóng落雷ê時，熾爁kap雷若平平入咱ê感覺，咱也是毋免驚。對看見熾爁到聽見雷ê聲彼中間時間ê長短，咱thang知the放電，á是落雷ê所在是離咱遠á是近。照學者所研究，宇宙內無一項物ê緊會盤過光ê緊。上緊也是kap光ê緊平若定。電流ê緊kap光平á緊。設使咱若會用銅線來纒地球ê周圍，電流一秒間會踅7輪半。（地球ê周圍倚10,200里）。咱暝日teh看ê光，用這款非常ê緊teh進行，kiám毋是thang顯明造物主ê大權能mah？
+　　光是人類kap其餘ê生物所第一欠用ê，ê一項。地球上若無日頭ê光，就攏變做烏暗。對按呢咱ê肉體也袂得thang活。親像按呢咱ê心靈也著倚靠神靈界ê光chiah會活。
+　　耶穌本身講：「我就是光來入世間」也對信伊ê學生講：「恁是世間ê光」這款宗教的ê譬喻，若深深kā伊想，毋若是文學的，也是科學的--ê。日頭ê光予咱存續肉體ê活命，真理ê光已經照佇台灣五十外年久lah！Ǹg望對這霎芥菜子，予真理ê光益發遍照佇全台。
 
-Lán tī khong-tiong só͘ kám-kak ê khong-khì lóng-sī khì-teh2. M̄-kú tī 48 nî chêng ū lâng hoat-kiàn oē hō͘ khong-khì pìⁿ-choè e̍k-teh2, chhin-chhiūⁿ chuí. Chit-hāng sī keng-kè chiâⁿ-pah nî-kú ê gián-kiù, chiah hoat-kiàn-tio̍h--ê. Lūn i chè-hoat kap sèng-chit tī chia bô beh siông-sè kóng-khí, kan-ta hō͘ lán chai beh chè-chō e̍k-teh2 khong-khì tio̍h ēng 150 khì-ap ê ap-le̍k, koh-tio̍h hō͘ khong-khì léng-khiok kàu pí peng-tiám khah-kē 140 tō͘ í-hā chiah oē ēng-tit. e̍k-teh2 khong-khì nā pí peng-tiám khah kē 193 tō͘ poàⁿ, tī khong-tiong ni̍h chit khì-ap ê sî thang choè ta̍k téng-hō ê lō-ēng. I ê sèng-chit chin-choē chin sim-sek. Chi̍t khì-ap nā ná kiám-chió, koh un-tō͘ nā pí peng-tiám khah-kē 218 tō͘ ê sî, e̍k-teh2 khong-khì chiū gêng-kiat pìⁿ-choè kò͘-teh2 khong-khì. Chhin-chhiūⁿ án-ni un-tō͘ kap khì-ap nn̄g-pêng ê piàn-oāⁿ nā phoè kàu tú-hó ê sî, chin-choē ê bu̍t-chit oē oāⁿ i ê chōng-thài, he̍k-sî píⁿ-choè kò͘-teh2, e̍k-teh2 ê piàn-hoà.
-
-(III)  Tē-lí-tek ê piàn-hoà. Khong-khì ê ap-le̍k nā pîⁿ-pîⁿ ê sî, chiū tuì khì-ap khah koân ê só͘-chāi lâu-lo̍h khah kē ê só͘-chāi ài hō͘ i ê ap-le̍k pîⁿ. Khong-khì chit-khoán ê ūn-tōng sī hō choè hong. Hong teh chhe ê la̍t kap siang-pêng ê khì-ap ê tiong-sim, nā lī jú hn̄g chiū jú-bān. Koh hong teh chhe ê hong-hiòng, siū-tio̍h toē-kiû teh ūn-tōng ê éng-hióng, m̄-sī ti̍t-ti̍t, sī chhin-chhiūⁿ kńg-lê-á khoán.
-
-Tiàm oá hái-piⁿ ê lâng chiū chai hong khah choē ji̍t-sî sī tuì lio̍k-toē chhe hiòng hit pêng, iā mî-sî tuì hái-bīn chhe hiòng lio̍k-toē lâi. Chit nn̄g-khoán ê hong tī chá-àm ê sî teh oāⁿ hong-hiòng, só͘-í hit sî-chūn chiū chēng-chēng bô hong. Chit-hāng ê goân in sī in-uī lio̍k-toē pí hái-chuí khah khoài khip-siu thài-iông ê jia̍t-khì, koh iā khah khoài hòng-sàn i só͘ khip-siu ê sio-khì. Lio̍k-toē khip-siu jia̍t oē koh hok-siā khí-lâi, só͘-í hō͘ khong-khì liam-piⁿ sio, iā tiòng toā khí--lâi. Tuì án-ni pâi-chhut téng-bīn ê khong-khì, hō͘ khì-ap kiám-chió. án-ni hō choè té-khì-ap. Hái-chuí khah oh khip-siu ji̍t-thâu ê jia̍t, só͘-í sì-uî ê khong-khì khah oh sio, téng-bīn khong-khì boē cháu-khì, só͘-í i ê khì-ap khah toā. án-ni hō choè ko-khì-ap. In-uī án-ni hong chiū tuì hái-bīn chhe hiòng lio̍k-toē khí-lâi. Kàu beh àm ê sî, ta-toē chiū ná hòng-sàn i só͘ khip-siu ê jia̍t, hō͘ khong-khì ná léng. Kàu i ê khì-ap ná kap hái bīn ê khì-ap pîⁿ ê sî chiū chēng hong. āu-lâi i ê khì-ap nā poâⁿ kè hái-bīn ê khì-ap, chiū khí-hong chhe tuì hái-bīn khì.
-
-Tī Tâi-oân 7, 8 ge̍h ê sî siông-siông ài tú-tio̍h hong-thai sī cháiⁿ-iūⁿ? Sī in-uī A-se-a tāi-lio̍k tī chit ê choeh-kuì ê sî siông-siông ài hut-jiân hoat-seⁿ té-khì-ap ê tiong-sim. Che sī choè hong-thai goân-in. Té-khi-ap ê tiong-sim m̄-sī tiām-tiām, sī oē chìn-hêng--ê. I teh chìn-hêng ê hong-hiòng tāi-khài tiāⁿ-tio̍h, nā-sī pak poàⁿ-kiû ê té-khì-ap ê tiong-sim, khí-thâu sī hiòng sai-pak, āu-lâi chiū oa̍t tuì tang-pak khì. Ū-sî té-khì-ap ê tiong-sim oē tehn̂g tiàm chi̍t só͘-chāi chin-kú, chhin-chhiūⁿ lâng ji̍p tī bê-lō͘ ê sî, tiàm siâng chi̍t uī teh kông se̍h. Té-khì-ap teh-beh chìn-hêng khì ê chêng-bīn, hia ê chuí-cheng-khì oē gêng-kiat soà lo̍h-hō͘, iā hoat-chhut i ê chiām-jia̍t (chiū-sī lo̍h-hō͘ ê sî chuí oē hòng-chhut i lāi-bīn pún-goân ū ê jia̍t) In-uī án-ni hō͘ hia ê khì-ap khah kē, chiū té-khì-ap ê tiong-sim thang chìn-hêng-khì. Só͘-í choè hong-thai ê sî khah-choē sī toā-hō͘ toā hong. Nā-sī kan-ta hong-thai chiū khah bián tú-tio̍h sím-mi̍h sún-hāi. Té-khì-ap ê tiong-sim kè-liáu ê si, sì-uî ê khong-khì oē cháu-lâi thap ài hō͘ hia ê khì-ap pîⁿ. āu-lâi chiū hó-thiⁿ.
-
-Chiah ê sī tāi-lio̍k kóng-khí nā-tiāⁿ, kî-û iáu ū kuí-nā téng hō͘ ê hong.
-
-Í-siōng sī tāi-lio̍k kóng-khí khong-khì ê khoán-si̍t, piàn-hoà kap lō͘-ēng nā-tiāⁿ. iáu ū siá bô chiâu-tio̍h ê, ǹg-bāng āu-pái ū ki-hoē chiah koh siá.
-
-# 科學記錄 <br /> 空氣
-
-看見草木ê枝葉teh搖來搖去，咱就知有風teh吹。靜靜無風ê時，咱若用手á是扇佇空中趕緊來拽，也thang知有啥物觸著咱ê皮膚。Koh這項就是人用鼻孔teh呼出吸入空中ê物無一秒間有歇睏。Taⁿ空中彼項物，咱kā伊號做空氣。這是逐人所識ê常識。
-
-空氣是包圍佇地球水陸兩界ê表面上，無論叼位一孔、一隙to是伊所佔領ê王國。雖然是按呢，伊ê存在ê範圍毋是無限ê。
-　　空氣包圍佇地球ê表面上chiah有20外英哩（mile）ê遠若定。Koh起氣是別款ê元素包圍teh。離地面懸ê所在空氣就ná稀薄；會容允得ê人ê呼吸袂拄著啥物大阻礙ê所在，極懸不過也是成十英哩以內若定。若捌爬高山ê人就知影爬上愈懸ê所在會予呼吸ná困難。
-
-咱知空氣時真輕ê物；毋過雖bóng koh-khah輕ê物，若是積濟起--來嘛是真重，不過因為伊ê分子kap分子ê中間相離真遠，所以伊ê體積著鎮真闊。Taⁿ空氣對遐懸ê所在teh-teh ê力有偌大？若是佇海面每一爿方尺有受空氣ê壓力170 外斤，這个力若離海面ná懸ê所在ná減少。所以若量這个力，就thang知彼所在有偌懸。空氣這款ê壓力號做氣壓。氣壓ê力是用氣壓計量。
-
-
-予氣壓計ê水銀柱，chhèng 76 sian-bí-bu̍t，就是25寸懸ê壓力號做一氣壓。（水銀比水khah重136倍，所以一氣壓ê力會予水chhèng到34尺懸）
-
-Taⁿ越倒轉來看空氣是啥物？空氣是無色、無味，平常ê溫度（以後kán-lio̍k講常溫）是氣體，（萬項物thang分做三個狀態：－
-
-(1)固體，－親像石、鐵、柴： (2)液體，親像水、臭油------；(3)氣體，親像水蒸氣、瓦斯、空氣------）空氣一百分ê內中，約五份一是酸素（按：氧），倚五份四是窒素（按：氮），其餘有淡薄ê元素。（argon；按：氬），碳酸瓦斯kap水蒸氣。
-
-Khah倚地球表面上ê空氣，有遮个物質用拄好ê分量來相混合，到拄拄合萬項物ê路用。
-
-若干但酸素這項元素佇teh ê時，雖bóng是常溫也是真快kap別項物相化合。這號做酸化，是酸素ê得勝。譬喻拄á歕失ê火柴枝若kā伊下佇酸素ê內面連鞭就koh焯。
-
-窒素拄拄kap酸素倒反，伊ê性真鈍，常溫ê時真oh kap別項元素相化合。因為空氣是這兩項性質相對反要緊ê元素來相摻--ê，所以佇常溫ê時會拄好供給眾項物ê欠缺。Taⁿ空氣thang做啥物路用？簡單來講幾若項：
-
-(Ⅰ)  化學的ê變化kap路用。第一要緊咱攏知，就是空氣會幫贊人類，雞禽走獸以及草木thang活佇地面。人吸空氣佇肺裡，酸素就吸收逐等號ê lâ-sâm，洗清咱ê血，後來變做碳酸瓦斯á是lâ-sâm ê空氣，chiah chhóan出來。所以人所踮ê厝內毋thang關siuⁿ密，著予空氣khah有流通，chiah有合佇衛生。
-
-植物對伊ê葉下細ê孔吸入空氣，後來chiah提彼內中ê窒素kap碳酸瓦斯中ê碳素做伊ê營養分，也吐出所賰ê酸素。所以佇海邊樹林ê所在，遐个空氣khah清，khah會幫贊人ê健康。
-
-佇空中若無空氣就咱所點ē火也袂焯。因為火teh焯是空氣中ê酸素teh幫贊伊。就是酸素kap碳素相結合變做碳酸瓦斯，予咱thang看見火舌、火燄紅紅。咱teh拽烘爐就是ài予火炭內碳素thang完全kap酸素相結合來發生khah濟ê熱。火炭teh焯ê時咱常常有看見淡薄á青色ê火舌。這是極毒ê物，號做一酸火碳素（按：一氧化碳），若吸入suiⁿ濟會傷害身軀，有時會致到死。所以若起火爐ê時著予火炭khah gâu焯就khah袂發生這款毒素。
-
-寒天掩火籠著用pû真紅ê碳khah好。鐵器會生銑也是因為空氣中ê酸素kap鐵勻勻仔相結合ê所致。就是鐵予酸素kā伊酸化--去。因為ài持防這號酸素ê作用咱chiah用別項物來kā擦。
-
-一項予咱thang注意--ê，就是前年歐洲大戰ê時德國ê學者夏肉（Harvard）有發見對空中吸收窒素ê方法。這項是科學上ê大發明；因為真早就有人苦心teh研究這項；總是無成功。製造火藥、肥料以及別項ê物所欠用ê窒素著對別項原料來khêng起來。對經濟上看起來是真傷重。若是空氣是自然ê本源，毋免用錢來買，也免驚遐快就提了。所以用夏肉ê方法來吸收空中ê窒素，經濟上真有長。歐戰中德國會擋遐久，也是因為有這項ê大發見thang予伊倚靠。
-
-(Ⅱ) 物理ê變化kap用途。第一要緊空氣是做傳達聲音ê路用。設使若無空氣，雖bóng發聲體ê聲音koh-khah大，in是袂得到佇咱ê耳膜。咱若用真勇ê玻璃鐘來tàu佇這个teh哮ê電能，雖bóng接喙糊予伊真密，咱猶久會聽見伊ê聲。若用抽風ê器具，kā伊抽出彼內面ê空氣，就ná細聲，到尾會攏無聽見；因為無空氣thang傳佈彼个聲音到佇外面。
-　　空氣teh傳佈聲音是受著對發音體所發出真重ê勢力。空氣受著這號勢力就成做音波（á是講空氣湧）傳達佇四圍。發音體所發出ê勢力是連續的--ê，毋是做一擺一擺發出。毋過空氣中有摩擦kap抵抗ê力佇teh，所以振動ê勢力ná衰滅，空氣所受ê勢力ná減少，聲音就ná細。
-
-頂面有講起空氣ê壓力有chiah大，所以咱若teh抽出玻璃管內ê空氣，著用真勇ê玻璃管chiah袂piak破。玻璃管內無空氣是號做真空。近代物理學真重要ê根本問題攏是佇真空管ê內面研究出來--ê。卻無欲講起遐个，干但予咱知佇空氣ê世界ê內面，猶有真微妙ê現象。
-
-空氣ê壓力hiah大，咱攏無感覺著是因為咱ê身軀內毋是真空，有拄好ê空氣佇內面teh抵抗外面ê壓力。
-
-咱佇空中所感覺ê空氣攏是氣體。毋過佇48年前有人發見會予空氣變做液體，親像水。這項是經過成百年久ê研究，chiah發見著--ê。論伊製法kap性質佇遮無欲詳細講起，干但予咱知欲製造液體空氣著用150氣壓ê壓力，koh著予空氣冷卻到比冰點khah低140度以下chiah會用得。液體空氣若比冰點khah低193度半，佇空中裡1氣壓ê時thang做逐等號ê路用。伊ê性質真濟真心適。1氣壓若ná減少，koh溫度若比冰點khah低218度ê時，液體空氣就凝結變做固體空氣。親像按呢溫度kap氣壓兩爿ê變換若配到拄好ê時，真濟ê物質會換伊ê狀態，或是變做固體、液體ê變化。
-
-(Ⅲ)  地理的ê變化。空氣ê壓力若平平ê時，就對氣壓khah懸ê所在流落khah低ê所在ài予伊ê壓力平。空氣這款ê運動是號做風。風teh吹ê力kap雙爿ê氣壓ê中心，若離愈遠就愈慢。Koh風teh吹ê方向，受著地球teh運動ê影響，毋是直直，是親像捲螺仔款。
-
-踮倚海邊ê人就知風khah濟日時是對陸地吹向彼爿，也暝時對海面吹向陸地來。這兩款ê風佇早暗ê時teh換方向，所以彼時陣就靜靜無風。這項ê原因是因為陸地比海水khah快吸收太陽ê熱氣，koh也khah快放散伊所吸收ê燒氣。陸地吸收熱會koh幅射起來，所以予空氣連鞭燒，也漲大起--來。對按呢排出頂面ê空氣，予氣壓減少。按呢號做短氣壓。海水khah oh吸收日頭ê熱，所以四圍ê空氣khah oh燒，頂面空氣袂走去，所以伊ê氣壓khah大。按呢號做高氣壓。因為按呢風就對海面吹向陸地起來。到欲暗ê時，乾地就ná放散伊所吸收ê熱，予空氣ná冷。到伊ê氣壓ná kap海面ê氣壓平ê時就靜風。後來伊ê氣壓若盤過海面ê氣壓，就起風吹對海面去。
-
-佇台灣7, 8月ê時常常ài 拄著風颱是怎樣？是因為亞西亞大略佇這个節季ê時常常ài忽然發生短氣壓ê中心。這是做風颱原因。短氣壓ê中心毋是恬恬，是會進行--ê。伊teh進行ê方向大概定著，若是北半球ê短氣壓ê中心，起頭是向西北，後來就越對東北去。有時短氣壓ê中心會停踮一所在真久，親像人入佇迷路ê時，踮siâng一位teh狂踅。短氣壓teh欲進行去ê前面，遐个水蒸氣會凝結續落雨，也發出伊ê暫熱（就是落雨ê時水會放出伊內面本源有ê熱）因為按呢予遐个氣壓khah低，就短氣壓ê中心thang進行去。所以做風颱ê時khah濟是大雨大風。若是干但風颱就khah免拄著啥物損害。短氣壓ê中心過了ê時，四圍ê空氣會走來thap ài予遐个氣壓平。後來就好天。
-
-遮个是大略講起若定，其餘猶有幾若等號ê風。
-
-以上是大略講起空氣ê款式、變化kap路用若定。猶有寫無齊著ê，ǹg望後擺有機會chiah koh寫。
+陳能通
