@@ -1,5 +1,8 @@
 # KHO-HA̍K CHA̍P-LIO̍K
 
+* Koàn-kî: Kòa-chhài-chí 1925/7
+* Chok-chiá: Tân Lêng-thong
+
 Lán ji̍t-siông ê seng-o̍ah, só͘ teh keng-giām ê hiān-siōng (chiū-sī mi̍h ê piàn-hòa: chhin-chhiūⁿ hé-thòaⁿ teh to̍h, thiⁿ-khì teh piàn, hong teh chhe, chúi teh lâu, tōng si̍t bu̍t teh seng-tióng ta̍k-hāng) chin chōe sī chū-jiân kho-ha̍k (chiū-sī gián-kiù chū-jiân-kài ê hiān-siōng ê ha̍k-bûn.) só͘ teh gián-kiù ê būn-tôe kap chhâi-liāu. Só͘-í lán ê ngó͘-koan ji̍t-mî só͘ teh keng-giām ê sū--bu̍t, teh piàn-chhian ê gôan-in, tùi kho-ha̍k ê hong-bīn thang thiah-bêng. Iáu-kú chōe-chōe lâng khah siông sī ēng ioh--ê, hán tit siông-sè kā chhâ-khó hit ê gôan-thâu. Siông-siông teh khòaⁿ ê mi̍h, teh thiaⁿ ê sū, á-sī só͘ teh ēng ê mi̍h-kiāⁿ, nā siông-siông kā i khe-khó ta̍k-hāng lóng ū chin bî-biāu ê só͘-chāi tī teh; Só͘-í lán nā ōe nā bat tām-po̍h sio̍k tī kho-ha̍k ê tì-sek, kap i ê chìn-pō͘ hoat-ta̍t ê le̍k-sú, put-chí ū thang chòe lán ji̍t-siông seng-o̍ah ê lī-ek, iā ōe pang-chān lán tùi tī chū-jiân-kài ê hong-bīn siⁿ-khí hèng-bī.
 
 Só͘-í ū ki-hōe ê sî ài tī pún pò kán-kán chhián-bêng chi̍t pòaⁿ hāng, nā ōe chòe chu ūi ê chham-khó chiū chin bān-hēng.
@@ -23,6 +26,9 @@ Iâ-so͘ pún-sin kóng, "Góa chiū-sī kng lâi ji̍p sè-kan" iā tùi sìn I
 Tân Lêng-thong
 
 # 科學雜略
+
+* 卷期：芥菜子 1925/7
+* 作者：陳能通
 
 咱日常ê生活，所teh經驗ê現象（就是物ê變化：親像火炭teh焯、天氣teh 變、風teh吹、水the流、動植物teh生長逐項）真濟是自然科學（就是研究自然界ê現象ê學問。）所teh研究ê問題kap材料。所以咱ê五官日暝所teh經驗ê事物、teh變遷ê原因，對科學ê方面thang拆明。猶久濟濟人khah上是用臆--ê，罕得詳細kā查考彼个源頭。常常teh看ê物、teh聽ê事，á是所teh用ê物件，若常常kā伊稽考逐項攏有真微妙ê所在佇teh；所以咱若會若捌淡薄屬佇科學ê智識，kap伊ê進步發達ê歷史，不止有thang做咱日常生活ê利益，也會幫贊咱對佇自然界ê方面生起興味。
 
