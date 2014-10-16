@@ -1,12 +1,21 @@
 # KHO-HA̍K CHA̍P-LIO̍K <br /> KHONG-KHÌ
+# 科學記錄 <br /> 空氣
 
 ~~Khoà-kìⁿ~~ (Khòaⁿ-kìⁿ) chhó-bo̍k ê ki-hio̍k teh iô-lâi iô-khì, lán chiū chai ū hong teh chhe. Chēng-chēng bô hong ê sî, lán nā ēng chhiú á-sī sìⁿ tī khong-tiong koáⁿ-kín lâi ia̍t, iā thang chai ū sím-mi̍h chhiok tio̍h lán ê phê-hu. Koh chit hāng chiū-sī lâng ēng phīⁿ-khang teh ho͘-chhut khip-ji̍p khong-tiong ê mi̍h bô chi̍t-biáu-kan ū hioh-khùn. Taⁿ khong-tiong hit hāng mi̍h, lán kā i hō choè khong-khì. Che sī ta̍k lâng só͘ bat ê siông-sek.
 
+看見草木ê枝葉teh搖來搖去，咱就知有風teh吹。靜靜無風ê時，咱若用手á是扇佇空中趕緊來拽，也thang知有啥物觸著咱ê皮膚。Koh這項就是人用鼻孔teh呼出吸入空中ê物無一秒間有歇睏。Taⁿ空中彼項物，咱kā伊號做空氣。這是逐人所識ê常識。
+
 Khong-khì sī pau-uî tī toē-kiû chuí-lio̍k lióng-kài ê piáu-bīn-siōng, bô lūn toh uī chi̍t khang, chi̍t-khiah to sī i só͘ chiàm-léng ê ông-kok. Sui-jiân sī án-ni, i ê chûn-chāi ê hoān-uî m̄-sī bô hān-ê.
+
+空氣是包圍佇地球水陸兩界ê表面上，無論叼位一孔、一隙to是伊所佔領ê王國。雖然是按呢，伊ê存在ê範圍毋是無限ê。
+　　空氣包圍佇地球ê表面上chiah有20外英哩（mile）ê遠若定。Koh起氣是別款ê元素包圍teh。離地面懸ê所在空氣就ná稀薄；會容允得ê人ê呼吸袂拄著啥物大阻礙ê所在，極懸不過也是成十英哩以內若定。若捌爬高山ê人就知影爬上愈懸ê所在會予呼吸ná困難。
+
 
 Khong-khì pau-uî tī toē-kiû ê piáu-bīn-siōng chiah ū 20 goā eng-lí (mile) ê hn̄g nā-tiāⁿ. Koh khí-khì sī pa̍t-khoán ê goân-sò͘ pau-uî teh. Lī toē-bīn koân ê só͘-chāi khong-khì chiū ná hi-po̍h; oē iông-ún tit ê lâng ê ho͘-khip boē tú-tio̍h sím-mi̍h toā chó͘-gāi ê só͘-chai, ke̍k-koân put-kò iā sī chiâⁿ cha̍p eng-lí í-lāi nā-tiāⁿ. Nā bat-peh koân-soaⁿ ê lâng chiū chai-iáⁿ peh chiūⁿ jú-koân ê só͘-chāi oē hō͘ ho͘-khip ná khùn-lân.
 
 Lán chai khong-khì sî chin khin ê mi̍h; m̄-kú sui-bóng koh-khah khin ê mi̍h, nā-sī chek choē khí--lâi mā-sī chin-tāng, put-kò in-uī i ê hun-chú kap hun-chú ê tiong-kan saⁿ-lī chin-hn̄g, só͘-í i ê teh2-chek tio̍h tìn chin khoah. Taⁿ khong-khì tuì hiah koân ê só͘-châi teh-teh ê la̍t ū loā-toā? Nā-sī tī hái-bīn muí chi̍t pêng hong chhioh ū siū khong-khì ê ap-le̍k 170 goā kun, chit ê la̍t nā lī hái-bīn ná koân ê só͘-chāi ná kiám chió. Só͘-í nā niû chit ê la̍t, chiū thang chai hit só͘-chāi ū loā koân. Khong-khì chit-khoán ê ap-le̍k hō choè khì-ap. Khì-ap ê la̍t sī ēng khì-ap-kè niû.
+
+咱知空氣時真輕ê物；毋過雖bóng koh-khah輕ê物，若是積濟起--來嘛是真重，不過因為伊ê分子kap分子ê中間相離真遠，所以伊ê體積著鎮真闊。Taⁿ空氣對遐懸ê所在teh-teh ê力有偌大？若是佇海面每一爿方尺有受空氣ê壓力170 外斤，這个力若離海面ná懸ê所在ná減少。所以若量這个力，就thang知彼所在有偌懸。空氣這款ê壓力號做氣壓。氣壓ê力是用氣壓計量。
 
 Hō͘ khì-ap-kè ê chuí-gûn thiāu, chhèng 76 sian-bí-bu̍t, chiū-sī 25 chhùn koân ê ap-le̍k hō choè chi̍t khì-ap. (chuí-gûn pí chuí khah tāng 136 pē, só͘-í chi̍t khì-ap ê la̍t oē hō͘ chuí chhèng-kàu 34 chhioh koân)
 
@@ -49,14 +58,7 @@ Chiah ê sī tāi-lio̍k kóng-khí nā-tiāⁿ, kî-û iáu ū kuí-nā téng h
 
 Í-siōng sī tāi-lio̍k kóng-khí khong-khì ê khoán-si̍t, piàn-hoà kap lō͘-ēng nā-tiāⁿ. iáu ū siá bô chiâu-tio̍h ê, ǹg-bāng āu-pái ū ki-hoē chiah koh siá.
 
-# 科學記錄 <br /> 空氣
 
-看見草木ê枝葉teh搖來搖去，咱就知有風teh吹。靜靜無風ê時，咱若用手á是扇佇空中趕緊來拽，也thang知有啥物觸著咱ê皮膚。Koh這項就是人用鼻孔teh呼出吸入空中ê物無一秒間有歇睏。Taⁿ空中彼項物，咱kā伊號做空氣。這是逐人所識ê常識。
-
-空氣是包圍佇地球水陸兩界ê表面上，無論叼位一孔、一隙to是伊所佔領ê王國。雖然是按呢，伊ê存在ê範圍毋是無限ê。
-　　空氣包圍佇地球ê表面上chiah有20外英哩（mile）ê遠若定。Koh起氣是別款ê元素包圍teh。離地面懸ê所在空氣就ná稀薄；會容允得ê人ê呼吸袂拄著啥物大阻礙ê所在，極懸不過也是成十英哩以內若定。若捌爬高山ê人就知影爬上愈懸ê所在會予呼吸ná困難。
-
-咱知空氣時真輕ê物；毋過雖bóng koh-khah輕ê物，若是積濟起--來嘛是真重，不過因為伊ê分子kap分子ê中間相離真遠，所以伊ê體積著鎮真闊。Taⁿ空氣對遐懸ê所在teh-teh ê力有偌大？若是佇海面每一爿方尺有受空氣ê壓力170 外斤，這个力若離海面ná懸ê所在ná減少。所以若量這个力，就thang知彼所在有偌懸。空氣這款ê壓力號做氣壓。氣壓ê力是用氣壓計量。
 
 
 予氣壓計ê水銀柱，chhèng 76 sian-bí-bu̍t，就是25寸懸ê壓力號做一氣壓。（水銀比水khah重136倍，所以一氣壓ê力會予水chhèng到34尺懸）
