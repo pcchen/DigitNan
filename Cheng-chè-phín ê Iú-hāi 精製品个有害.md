@@ -1,7 +1,8 @@
 # Cheng-chè-phín ê Iú-hāi
 
-(Tân Lêng-thong)
-1933. 03, no. 576, pp. 28
+## Tâi-oân Kàu-hoē Kong-pò 1933. 03, no. 576, pp. 28
+## Tân Lêng-thong
+
 
 Kia-to͘ Kìm-chiú-hoē ê Hoē-tiúⁿ Siông-po͘ (松浦) I-ha̍k phok-sū, chú-tiuⁿ cheng-chè-phín (精緻品) iú-hāi-lūn kóng, Lâng nā lim cheng-liû-chuí (蒸餾水 distilled water) oē phò-hoāi pe̍h huih-kiû, kap âng huih-kiû, tì-kàu lâng khah khoài sí. án-ni thang chai chuí nā ēng lâng kang (人工) lâi kā i cheng-chè, hoán-tńg pìⁿ-choè iú-hāi.
 
